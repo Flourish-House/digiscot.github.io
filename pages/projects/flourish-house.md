@@ -140,6 +140,26 @@ TBA
 
 This is where the project lead will share information about what was achieved and what was learned.
 
+MIDWAY REVIEW
+Included as blog entry on SCVO's blog
+
+August 24, 2015 : Charlotte Smith
+Digital inclusion through entrepreneurship
+Developing digital skills and changing lives - Flourish House and their fantastic Challenge Fund supported digital inclusion project
+
+Since starting the Digital Participation project in Flourish House there has been such a buzz and energy around using computers and getting online as part of the day to day work of Flourish House. From tweeting on the Flourish House Twitter page to ordering a weekly Tesco shop for our café, members are keen to try their hand at something new that will make an impact on the way Flourish House operates. By taking the time to work with individuals on a one to one basis and in a group setting to build up IT skills in Flourish House, our members have then been able to use these skills in their own lives and within their own homes – with one member going on to book their own holiday!
+
+We have always had an online presence for networking with other organisations and businesses, but have struggled with how to involve the members with this type of work as everyone’s computer skills are so different. For ourselves, these range from those who know how to navigate a computer or type up a document, to those that don’t know what the mouse is for or where to find the on switch.
+
+Through a series of workshops which we shaped around what the members want to know, we have delivered engaging and informative step by step sessions together with an opportunity to put to use what people have learned. A recent series on online shopping saw the group ordering a Tesco shop for our café for the week ahead even though some of the group initially had fears around exchanging money online. Hand in hand with these sessions we have provided one to one support for members who want to take things further including setting up email accounts, registering with eBay and Paypal, and shopping on Amazon – generally being more active online.
+
+We have been encouraged by the impact of the Digital Participation project on the day to day work of Flourish House. We could never have imagined just how engaged members would be with it and are confident that the work carried out so far will continue to develop the personal skills of members, as well as provide a means through which the members can contribute to the ongoing work in Flourish House.
+
+We would like to thank everyone involved for their support and encouragement in setting up this project and making it a reality, and we look forward to where it will take us in the future.
+
+Charlotte Smith & Sally Ho
+Flourish House
+
 ### Outputs and outcomes
 
 Overall this project X, Y, Z.
